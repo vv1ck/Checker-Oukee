@@ -4,4 +4,8 @@ Check username
 - Doesn't need proxies
 - Create a file with usernames and then run the tool
 - Api 🔫
-By Joker
+-
+By JOKER | <a class="" href="https://www.snapchat.com/add/jokermr5oos4800?">Snapchat 👻</a>
+-
+See.
+
